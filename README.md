@@ -12,6 +12,5 @@ Outside of her academic and professional pursuits, Kavyaa enjoys watching docume
 
 ## Find Me
 
-`code`
 
 - LinkedIn: www.linkedin.com/in/kavyaaramesh
